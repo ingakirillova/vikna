@@ -1,1 +1,11 @@
-# vikna
+Hi, if you are thinking about whether to buy plastic windows? Or how can you install them yourself, and clean them to perfection? Plastic or PVC windows are very popular, but why? We will be able to help you with consultation, in installation, in measurements. Contact us at https://vikna.ua . Cost is one of the biggest unknowns when it comes to buying windows - the cost of plastic windows can vary greatly depending on a number of factors. Since there are so many variables, it can be difficult to specify a price without knowing the exact characteristics of the required window. Here we can help! If you are trying to choose between plastic windows with double and triple glazing, look no further! Here you will find prices for white or wooden PVC windows with both types of glazing. It’s not fun to pay for things, especially big purchases like windows. This is a serious investment that can affect the quality of your life, for better or for worse. For this reason, it is important to take a closer look and not rush before making a decision. Enter some data on our confidential portal and you will receive up to 4 personalized offers within two days. You will not be required to buy anything, plus you will be able to find the best deal for your requirements. Plastic windows with time can be damaged by the sun and after a while can lose a glossy surface. What can you do to make them beautiful again? In general, if you do not know how to restore your plastic windows, it is best to contact a specialist. They will be able to tell you whether you can restore them or they need to be completely replaced. Installing or replacing a plastic window is a tricky job that is best done by professionals. However, if you are confident in your DIY skills, you can try it! Do some extensive research and watch the video before you start. The main steps you need to perform:
+Measure your hole and window carefully
+Place the frame in the hole with a uniform spacing between the frame and the hole.
+Lining the window in certain places (depending on the style of the window)
+Install the opener, plastic cover and handle
+Screw the window to the frame - not too tight, otherwise you can deform the frame
+Make sure it runs smoothly.
+Ensure that external weather protection even around
+Isolate the frame from the hole (use foaming foam carefully)
+Caulk everything around. With new assemblies, it is best to use a membrane seal.
+Clean the window and you're done!
